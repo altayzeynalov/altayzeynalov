@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on make me happy
 - 📫 How to reach me: google please
 - 😄 Pronouns: Altay
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: you are reading about me 
 
 <!---
 altayzeynalov/altayzeynalov is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
